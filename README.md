@@ -8,7 +8,7 @@
 
   ✪ αgє- 17
 
-  ✪  иσω ιи - 11тн 
+  ✪  иσω ιи - 12тн 
 
   ✪  ѕтяєαм - ρ¢м 
 
@@ -29,7 +29,7 @@
  
 
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/kya_rakhu_smjh_nhi_aa_rha)
-[![Instagram](https://img.shields.io/badge/-Instagram-E1306C?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/https://www.instagram.com/_sumit_____ss_)
+[![Instagram](https://img.shields.io/badge/-Instagram-E1306C?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/https://www.instagram.com/ss_sumitt)
 [![Gmail](https://img.shields.io/badge/Gmail-0072c6?style=for-the-badge&logo=Microsoft-Outlook&logoColor=green)](sumitxmon@gmail.com)
  <h3>ɪ αм нєяє тσ ℓєαяи  тнє мαкιиg σf вσтѕ αи∂ ¢σ∂ιиg</h3>
 
