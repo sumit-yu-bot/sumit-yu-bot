@@ -6,11 +6,11 @@
  
   ✪ иαмє- ѕυмιт
 
-  ✪ αgє- 17
+  ✪ αgє- 20
 
-  ✪  иσω ιи - diploma
+  ✪  иσω ιи - btech 
 
-  ✪  ѕтяєαм - ρ¢м 
+  ✪  branch - cse(ai&ml) 
 
   ✪  яєgισи - ιи∂ια
 
@@ -31,7 +31,7 @@
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/kya_rakhu_smjh_nhi_aa_rha)
 [![Instagram](https://img.shields.io/badge/-Instagram-E1306C?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/https://www.instagram.com/ss_sumitt)
 [![Gmail](https://img.shields.io/badge/Gmail-0072c6?style=for-the-badge&logo=Microsoft-Outlook&logoColor=green)](sumitxmon@gmail.com)
- <h3>ɪ αм нєяє тσ ℓєαяи  тнє мαкιиg σf вσтѕ αи∂ ¢σ∂ιиg</h3>
+ <h3>explore the coding world</h3>
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
